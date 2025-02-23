@@ -10,4 +10,6 @@
 4. cut lime in half
 5. squeeze lime into bowl
 6. drop a pinch of salt into bowl
-4. mix and mush everything to obtain a creamy consistency 
+7. mix and mush everything to obtain a creamy consistency 
+8. Enjoy on toast or sandwiches
+
