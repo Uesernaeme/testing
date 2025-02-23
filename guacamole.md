@@ -11,4 +11,4 @@
 5. squeeze lime into bowl
 6. drop a pinch of salt into bowl
 7. mix and mush everything to obtain a creamy consistency 
-8. Enjoy with friends and family
+8. Enjoy on toast or sandwiches with friends and family
